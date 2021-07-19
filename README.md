@@ -120,5 +120,5 @@ pdfs in [finished\_reports](finished_reports).
 
 ## Contact
 
-Reach out to me at bradley.lindblad\[at\]gmail.com or my website
+Reach out to me at me\[at\]bradlindblad.com or my website
 [technistema.com](https://technistema.com).
